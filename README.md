@@ -1,0 +1,1 @@
+# Tipo_Sanguinio_Android
